@@ -9,6 +9,7 @@ Capitulo 11 Y 12
 
 2. MARCO TEÓRICO (RESUMEN)
 
+![image](https://user-images.githubusercontent.com/105899463/180879073-2d3f85e9-0863-4cb2-bb50-c336147677da.png)
 
 
 3. EXPLICACIÓN Y RESOLUCIÓN DE EJERCICIOS O PROBLEMAS
