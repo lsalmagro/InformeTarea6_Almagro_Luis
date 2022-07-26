@@ -11,6 +11,7 @@ Capitulo 11 Y 12
 
 ![image](https://user-images.githubusercontent.com/105899463/180879073-2d3f85e9-0863-4cb2-bb50-c336147677da.png)
 
+![image](https://user-images.githubusercontent.com/105899463/180928215-7e9fa0c4-3777-40b4-ac0b-4dda49ba4056.png)
 
 3. EXPLICACIÓN Y RESOLUCIÓN DE EJERCICIOS O PROBLEMAS
 
